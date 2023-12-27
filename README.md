@@ -14,7 +14,7 @@ Follow me on [Twitter](https://twitter.com/AlHasanSony).
 Check out my game, [Foggy Rainfall Escapade](https://store.steampowered.com/app/2499310/Foggy_Rainfall_Escapade/), available on Steam.
 
 ### Twitter Game Page
-Explore my additional content on [Facebook](https://twitter.com/foggy_rainfall).
+Explore my game on [Twitter](https://twitter.com/foggy_rainfall).
 
 ### Facebook
 Find me on [Facebook](https://www.facebook.com/al.hasan00/).
